@@ -1,0 +1,1 @@
+Something like magic workstation but with a codex and face-down graveyard
